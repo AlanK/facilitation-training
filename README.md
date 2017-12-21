@@ -154,4 +154,4 @@ If your group is engaged in complex work over long periods of time, you may want
 
 ## The end
 
-Go forth and do likewise.
+Your turn.
